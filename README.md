@@ -1,4 +1,4 @@
-- #👋 Hi, I am Rahul Nair and an experienced Jack in Key Accounts and Sales. 
+- 👋 #Hi, I am Rahul Nair and an experienced Jack in Key Accounts and Sales. 
 - Treading on this journey to learn Data Science, and its been 3 years since I have been associated with this in the learning space.
 - Loving each minute of it.
 - 
